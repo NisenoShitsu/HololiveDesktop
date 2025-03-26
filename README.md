@@ -27,6 +27,6 @@ WHERE TO DOWNLOAD?:
 SUPPORT THIS PROJECT BY
 -----------------------------------
 If you want to support me in making this project I will be glad to and very thankful so feel free to join me in my [Patreon] https://www.patreon.com/nisenoshitsu?utm_campaign=creatorshare_creator!
-Or You can Donate On my [Ko-Fi] https://ko-fi.com/niseno_shitsu
+Or You can Donate On my [Ko-Fi] [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/Q5Q8XX40V)
 
 ENJOY HOLOLIVE FANS!
